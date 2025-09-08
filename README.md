@@ -1,0 +1,1 @@
+# AI-IN-5-Intro-to-Generative-AI-mini-course
